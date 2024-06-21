@@ -1,1 +1,1 @@
-# it let's you track your expenses. 
+# it let's you track your expenses.  💸💸
